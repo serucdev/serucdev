@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **https://discord.gg/GWqG8GgWXv**
 
-- ⚡ Fun fact **I used to play football at semi-professional level.**
+- ⚡ Fun fact **I used to play football.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
